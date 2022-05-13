@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Victoria
-- 👀 I’m interested in programing design, art an music production 
-- 🌱 I’m currently learning how to get to become even better at web developing and data analysis
+- 👀 I’m interested in finance, programing design, art and music production 
+- 🌱 I’m currently learning how to get to become even better at web developing and data analyst
 - 💞️ I’m looking to collaborate on beautifull and interesting projects
 - 📫 How to reach me:
 https://www.linkedin.com/in/isveth-alfonso-ruiz-3a89a41b2/
