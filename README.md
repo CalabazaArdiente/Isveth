@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Calabaza Ardiente
-- 📫 How to reach me:
-https://www.instagram.com/calabaza_ardiente/
+- 📫 How to reach me: https://www.instagram.com/calabaza_ardiente/
 
 
 <!---
