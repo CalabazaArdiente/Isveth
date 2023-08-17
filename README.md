@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Calabaza Ardiente
 - 📫 How to reach me:
-https://www.linkedin.com/in/isveth-alfonso-ruiz-3a89a41b2/
+https://www.instagram.com/calabaza_ardiente/
 
 
 <!---
